@@ -105,11 +105,41 @@ Ingredients:
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
+
 2. Combine flour, baking soda, and salt in a bowl.
+
 3. Cream together butter, white sugar, and brown sugar until smooth.
+
 4. Beat in eggs one at a time, then stir in vanilla.
+
 5. Gradually blend in the dry ingredients.
+
 6. Stir in chocolate chips.
+
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
+
 8. Bake for 8 to 10 minutes or until golden brown.
+
 9. Cool on wire racks.
+
+   ### Sweet Pine Kernel Corn
+
+   ​     Ingredients:
+
+   1. Pine kernel
+
+   2. fresh corn
+
+   3. sugar
+
+      Instructions:
+
+      1. Preheat oven to 375°F (190°C).
+
+      2. Combine fresh corn, baking pine kernel, and sugar in a bowl.
+
+      3. Bake for 8 to 10 minutes or until golden brown.
+
+         ​
+
+      ​
